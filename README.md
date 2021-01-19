@@ -1,2 +1,2 @@
 kImI iS gEi
-https://i.imgur.com/uJUoWgs.png
+![juusto](https://i.imgur.com/uJUoWgs.png)
