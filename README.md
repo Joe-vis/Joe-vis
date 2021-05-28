@@ -1,2 +1,2 @@
-[@kImI](https://github.com/KimiJok1) iS gEi
+[@kImI](https://funnymonkey.studio/clicker/) Ay yo new games
 ![juusto](https://i.imgur.com/uJUoWgs.png)
