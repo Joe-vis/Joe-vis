@@ -1,2 +1,2 @@
-[interbullet studio](https://interbullet.studio) Ay yo new website
+no more websites :<
 ![juusto](https://i.imgur.com/uJUoWgs.png)
